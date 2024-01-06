@@ -1,2 +1,2 @@
 # Demo
-mahilig ako sa pula
+mahilig a pula
